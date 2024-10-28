@@ -1,4 +1,4 @@
-Hey there! I'm a physicist diving deep into the world of Complex Networks. My main jams are Complex Systems, opinion dynamics, and the wild impacts of climate change. I mix in some Game Theory to tackle all sorts of business challenges – it's pretty cool how it all connects!
+Hey there! I'm a physicist diving deep into the world of Complex Networks. My main jams are Complex Systems, Opinion Dynamics, and the wild impacts of Climate Change. I mix in some Game Theory to tackle all sorts of business challenges – it's pretty cool how it all connects!
 
 I love teaming up with folks from social sciences, politics, psychology, and biology to come up with creative solutions for tough problems. Being a student tutor taught me a lot about leading teams and making learning fun and collaborative.
 
